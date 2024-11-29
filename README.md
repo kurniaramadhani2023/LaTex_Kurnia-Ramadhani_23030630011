@@ -1,0 +1,1 @@
+# LaTex_Kurnia-Ramadhani_23030630011
